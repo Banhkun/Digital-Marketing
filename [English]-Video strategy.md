@@ -1,5 +1,3 @@
-Dưới đây là bản cập nhật với **hashtag #keyshe88** được thêm vào cuối mỗi mục, giữ nguyên nội dung tiếng Anh + hashtag tiếng Việt:
-
 ---
 
 ## 💡 TIKTOK VIDEO IDEAS — NEGATIVE ION HAIR STRAIGHTENING BRUSH
@@ -123,7 +121,3 @@ Dưới đây là bản cập nhật với **hashtag #keyshe88** được thêm 
 • Sample caption:
 “Set your alarm for 8PM tonight! Major discounts coming 👀
 **#nhaclive #sale8h #dotnaysale #muangaykeomuon #keyshe88**
-
----
-
-Let me know if you want a **Google Docs version**, a **Canva template**, or **voiceover script** to go with any of these ideas!
