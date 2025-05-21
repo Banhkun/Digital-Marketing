@@ -1,4 +1,4 @@
-## 💡 TIKTOK VIDEO IDEAS — NEGATIVE ION HAIR STRAIGHTENING BRUSH
+## 💡 TIKTOK VIDEO IDEAS — ANION HAIR STRAIGHTENING BRUSH
 
 **Tone**: Humorous – Trendy – Easy to Understand
 **Audience**: Teenagers to Adults
