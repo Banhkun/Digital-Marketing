@@ -121,5 +121,5 @@
 • Countdown, hiệu ứng hấp dẫn
 • Caption gợi ý:
 
-> “Hẹn nhau 20h tối nay – deal đỉnh đang chờ! 😍 #ThongBaoLive #SaleTocIon”
+> “Hẹn nhau 20h tối nay – deal đỉnh đang chờ! 😍 #ThongBaoLive #Flash-sale”
 
