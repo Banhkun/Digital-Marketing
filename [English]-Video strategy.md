@@ -1,5 +1,3 @@
----
-
 ## 💡 TIKTOK VIDEO IDEAS — NEGATIVE ION HAIR STRAIGHTENING BRUSH
 
 **Tone**: Humorous – Trendy – Easy to Understand
